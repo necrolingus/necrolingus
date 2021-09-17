@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @necrolingus! I like code, home automation, networking, and dinosaurs.
