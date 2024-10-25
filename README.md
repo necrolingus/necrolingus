@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @necrolingus! I like code, home automation, networking, and tech in general.
+- 👋 Hi, I’m @necrolingus! I like code, home automation, cloud, and tech stuff.
